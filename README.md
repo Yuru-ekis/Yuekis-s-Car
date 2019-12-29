@@ -13,7 +13,7 @@
 本站未来将推出线上下单功能，敬请期待。
 ## 友情链接
 [余思科的经典博客](https://blog.ykis.tk)      
-[优秀学长](https://makit0.cc)        
+[优秀学长](https://mak1t0.cc)        
 [花見佑奈](https://yutsuki.moe)          
 
 # Welcome to the official website for Yuekis's Car
