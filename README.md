@@ -8,9 +8,13 @@
 余老板开车不为盈利，只为交朋友和锻练车技。         
 赚一点点钱，养家糊口补贴家用。
 ## 联系方式
-+微信 mw4530r 联系余老板
++微信 mw4530r 联系余老板       
 ## 更多
 本站未来将推出线上下单功能，敬请期待。
+## 友情链接
+[余思科的经典博客](https://blog.ykis.tk)      
+[优秀学长](https://makit0.cc)        
+[花見佑奈](https://yutsuki.moe)          
 
 # Welcome to the official website for Yuekis's Car
 Yuekis is a student from Shantou University who has C1 driving license. He likes driving and carpooling.       
